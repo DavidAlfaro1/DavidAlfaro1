@@ -1,3 +1,7 @@
+<img width="384" height="384" alt="VC95jw" src="https://github.com/user-attachments/assets/497937ee-0e62-44d9-a8f1-48b02a6a96f9" />
+
+
+
 # 👋 ¡Hola! Soy David A
 
 ### 💻 Estudiante de DAWe | 🎮 Gamer | 🎵 Amante de la música
